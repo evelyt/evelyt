@@ -1,4 +1,4 @@
-## Oiee, eu sou a Evely Tereza!
+## Hi, i'm Evely Tereza!
 
 - 🔭 I’m currently working to gain knowledge and be a better person
 - 😄 Pronouns: she/hers
