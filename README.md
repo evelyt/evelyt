@@ -2,7 +2,6 @@
 
 - 🔭 I’m currently working to gain knowledge and be a better person
 - 😄 Pronouns: she/hers
-- ⚡ Fun fact: I love animals like cats, dogs, cockatiels, hamsters, pet mice and between others. I play League of Legends, just because I love Nami and Taric. Finally my favorite anime is Naruto and series Supernatural.
 - 📫 How to reach me: Clicking on the interactive button below.
 ##
 <div align="center">
